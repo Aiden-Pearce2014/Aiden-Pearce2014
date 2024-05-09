@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Aiden-Pearce2014
 - 👀 I’m interested in Finance,Tech,Business,Gadgets,Hacking and Movies.
 - 🌱 I’m currently learning Basics of coding.
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me comment on my yt Bryan Plays
+- 💞️ I’m looking to collaborate on not anyhting at the moment.
+- 📫 How to reach me: comment on my YT Bryan Plays.
 
 - ⚡ Fun fact: My username is Aiden-Pearce2014 because I love Watch Dogs.
 
